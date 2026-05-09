@@ -1,4 +1,4 @@
-
+Enhance Craft for macOS with rare Tool for Craft for macOS - voice notes and custom shortcuts, the #1 tool. Includes voice notes and custom shortcuts for a smoother experience.
 
 
 
